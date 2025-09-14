@@ -5,19 +5,24 @@ Got it 🔥 — here’s Ukubona’s Charter, compressed into a Pentad of First 
 Ukubona Charter (2025)      
 
 Engine of Rehearsal, Ledger of Emergence  
-	1.	Zeroeth — Ontology (θ)            
+
+   1.	Zeroeth — Ontology (θ)            
 There is no absolute zero. Unknown unknowns persist.    
 Therefore: there will always be gradients, hidden parameters, seeds of play.    
-	2.	Second — Dependencies (Σ)          
+	
+   2.	Second — Dependencies (Σ)          
 Gradients bind us into collisions.      
 Adversarial is the default. Cooperative and transactional forms are temporary equilibria carved within conflict.      
-	3.	Third — Games (h(t))    
+	
+   3.	Third — Games (h(t))    
 Where adversaries are absent, we conjure them.     
 Play is not pastime — it is pedagogy. Zombies at the door, leagues on the field, hypotheses in contest.     
-	4.	Fourth — Outcomes (ΔS)      
+   
+   4.	Fourth — Outcomes (ΔS)      
 Every contest yields a ledger: wins, losses, draws.      
 Rankings are the grammar of survival, from Olympic games to corporate P&Ls to scientific citations.     
-	5.	Fifth — Update (θ′)      
+   
+   5.	Fifth — Update (θ′)      
 Survivors write ontology.       
 Winners redraw the map. Epistemology is not discovered — it is forged in collision and inscribed by those who endure.         
 
